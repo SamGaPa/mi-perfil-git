@@ -1,0 +1,1 @@
+que tecnologia me interesa? Ninguna
